@@ -1,2 +1,3 @@
 # HELLO-GITHUB
 just for practice.....
+That's so crazy.....emmm..Thanks to the GitHub which provides a free plaform for our newner  to have a  practice 
